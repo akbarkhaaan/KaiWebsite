@@ -42,7 +42,7 @@ Also click <a href="https://tenor.com/view/kitten-cute-adorable-cat-gif-12064725
 <h4>Some More OG Anime</h4>
 <img src="https://a.wattpad.com/cover/88455860-352-k600969.jpg">
 <img src="https://imgix.ranker.com/user_node_img/50071/1001419317/original/the-interaction-between-l-and-light-is-nonexistent-photo-u1?w=650&q=50&fm=pjpg&fit=crop&crop=faces">
-<img src="https://vignette.wikia.nocookie.net/naruto/images/5/50/Team_Kakashi.png/revision/latest?cb=20161219035928"
+<img src="https://vignette.wikia.nocookie.net/naruto/images/5/50/Team_Kakashi.png/revision/latest?cb=20161219035928">
 <p>Btw weren't you looking for this size.<p> <br>
 
 
